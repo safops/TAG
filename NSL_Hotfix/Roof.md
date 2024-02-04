@@ -1,6 +1,8 @@
 # Roof To Be Exonerated
 First, this may anger or confuse some, but Dylan Roof is not guilty of the attack on Mother Emmanuel. According to the Creator, Dylan Roof has done nothing to be jailed for. 
 
+The Mother Emmanuel Bible study attack never occurred. It was used to guage public response to such a tragedy.
+
 ![R (1).jpeg](https://github.com/serviCreator/TAG/assets/155787787/ac52df84-b94e-4a3e-b7c5-96854cd21519)
 
 Roof was known to the FBI for his separatist views and when the CIA needed an assailant for its manufactured Bible study attack on a "historic black church" the FBI gave them Roof's name in a list of minimum viable suspects. The CIA manufactured a story based on a couple of images they obtained that Roof was photographed in. 
