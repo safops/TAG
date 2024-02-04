@@ -1,4 +1,4 @@
-# Roof To Be Exonerated
+# Creator: Roof to be freed, attack never occurred 
 First, this may anger or confuse some, but Dylan Roof is not guilty of the attack on Mother Emmanuel. According to the Creator, Dylan Roof has done nothing to be jailed for. 
 
 The Mother Emmanuel Bible study attack never occurred. It was used to guage public response to such a tragedy.
