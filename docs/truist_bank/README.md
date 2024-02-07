@@ -3,3 +3,7 @@ walking out of trust Bank in Decatur Georgia it's evident in the company has bee
 
 I was greeted by a woman named Katrina.
 This not an incident, it's not a coincidence, it's a pattern.
+
+![IMG_20240207_141748588_HDR](https://github.com/serviCreator/TAG/assets/155787787/d098f83c-860e-4d64-9147-b44e59bae37a)
+
+This officer is protecting the company 
